@@ -4,9 +4,9 @@
 
 ## 截图
 
-![image](https://ae01.alicdn.com/kf/H87001630ed1845339a57e022d3623244n.png)
+![image](https://ae01.alicdn.com/kf/Ha822311ba413407a9661cbe8ba39dc85h.png)
 
-![image](https://ae01.alicdn.com/kf/Hecb24ef614b44feca85d1f7cdb727b6c5.png)
+![image](https://ae01.alicdn.com/kf/Hc63ecae4721e431f9c9d9abae646eddef.png)
 
 ## 下载地址
 
