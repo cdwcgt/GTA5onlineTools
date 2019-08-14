@@ -4,9 +4,9 @@
 
 ## 截图
 
-![image](https://pic2.superbed.cn/item/5d4bfd4e451253d178fba78d.png)
+![image](https://ae01.alicdn.com/kf/H21952558dc904ebfba89817642c2e3eep.png)
 
-![image](https://pic.superbed.cn/item/5d4bfd6c451253d178fbabb4.png)
+![image](https://ae01.alicdn.com/kf/Hc285b74eb1a64cbbb0ae7d6f84bee71fT.png)
 
 ## 下载地址
 
