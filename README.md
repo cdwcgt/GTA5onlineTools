@@ -4,10 +4,10 @@
 
 ## 截图
 
-![image](https://ae01.alicdn.com/kf/H6f2c15ea90bf4b539bbb9e01d581390e1.png)
+![image](https://ae01.alicdn.com/kf/H006b47ad3587444fbf20fd0febd77f65U.png)
 
-![image](https://ae01.alicdn.com/kf/He5578ed12c574086aeca576ed552e1b7d.png)
+![image](https://ae01.alicdn.com/kf/Hd38a91f3b0424ce8b11493c7126c26586.png)
 
 ## 下载地址
 
-[点我下载](https://crazyzhang.pipipan.com/dir/16907746-34952623-757b8b/)  
+[点我下载](http://disk.crazyzhang.cn/dir/16907746-34952623-757b8b)  
